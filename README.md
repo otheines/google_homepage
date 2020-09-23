@@ -1,0 +1,1 @@
+Hello my name is Israel Garcia and I have joined The Odin Project as a means to learn a new hobby and possibly a new and exciting career path. 
